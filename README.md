@@ -45,4 +45,4 @@ Your contributions are welcome.
 
 ## 📬 Contact
 
-If you'd like to collaborate or have suggestions, feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/shivendra-singh-).
+If you'd like to collaborate or have suggestions, feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/shivendra-singh-93631b324).
